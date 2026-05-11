@@ -1,4 +1,4 @@
-
+Get the ultimate MindManager for Windows utility with advanced MindManager for Windows Utility | offline-access + notes-integration. Featuring offline-access and
 
 
 
